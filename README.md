@@ -1,1 +1,0 @@
-# devlearning-gt.github.io
